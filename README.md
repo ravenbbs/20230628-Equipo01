@@ -1,1 +1,9 @@
-Julio Condor - Mauro Limache - Karen Urbano - Guillermo Morales - Santiago Armijos
+# Santiago Armijos
+
+## Ecuador
+
+Ecuador :wink:
+
+
+
+
